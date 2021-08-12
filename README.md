@@ -1,0 +1,2 @@
+# skripsi_mcdani_paling_ggwp_savage_maniac_mvp_pro_peler
+projek skripsi bebas download lah
